@@ -2,7 +2,7 @@
 - 🔭 I’m currently working on ...
     Devloping on dogecoin/dogecoin
 - 🌱 I’m currently learning ...
-   Computerscience and Economics @ SJSU University
+   Computerscience from the community and Economics @ SJSU University
 - 👯 I’m looking to collaborate on ...
     Dogecoin!
 - 🤔 I’m looking for help with ...
@@ -16,6 +16,9 @@
 - ⚡ Fun fact: ... 1 Doge = 1 Doge
     At times, I get egotistical, but through the help of the community to check in on me, and with being surrounded by the people who bring up, 
 I enjoy learning, helping, and loving!
+
+Feedback: Please send me any feedback, I want to continue to learn about what I can change about myself, but also from the community, its only the start. 
+*open arms*
 -->
 
 NEVER invest more you can safely invest.

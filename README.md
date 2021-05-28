@@ -33,4 +33,6 @@ Never send any money to to any address, wether that be bitcoin, doge, or any oth
 Do your own Research, the community has your back <3
 
 Be weary of any links that you are opening in your broswer, it can be malicious and unsafe. 
+
+*hug*
 #

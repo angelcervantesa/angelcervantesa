@@ -18,8 +18,8 @@
 I enjoy learning, helping, and loving!
 
 Feedback: Please send me any feedback, I want to continue to learn about what I can change about myself, but also from the community, its only the start. 
+
 *open arms*
--->
 
 NEVER invest more you can safely invest.
 

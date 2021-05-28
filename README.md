@@ -27,4 +27,8 @@ NEVER invest more you can safely invest.
 Investing is GAMBLING there is never a sure shot ever.
 
 Remember, THIS IS NOT FINANCIAL ADVICE, this is life advice 
+
+Never send any money to to any address, wether that be bitcoin, doge, or any other cryptocurrency. 
+Do your own Research, the community has your back <3
+Be weary of any links that you are opening in your broswer, it can be malicious and unsafe. 
 #
